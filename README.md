@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kachows
+- 👀 I’m interested in A.I and quantum related topics
+- 🌱 I’m currently learning nothin everythin..
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me dm me or smt kachowsfr on inst
+- ⚡ Fun fact: tony stark fan.
